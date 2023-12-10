@@ -1,0 +1,1 @@
+Check release section for APK
